@@ -1,8 +1,8 @@
 ## Receive Free SMS from UK Numbers – Secure & Anonymous Service
 
-**[Get Free SMS from UK Numbers](https://dub.sh/free-sms-uk)** through our service at . It's fast, secure, and completely anonymous. Protect your privacy, avoid spam, and verify accounts without revealing your personal phone number.
+**[Get Free SMS from UK Numbers](https://freereceivesms.top/)** through our service at . It's fast, secure, and completely anonymous. Protect your privacy, avoid spam, and verify accounts without revealing your personal phone number.
 
-[![Get Free SMS from UK Numbers](https://github.com/user-attachments/assets/e9fb02a0-b5e2-4a69-8481-fe0d08049a24)](https://dub.sh/free-sms-uk)
+[![Get Free SMS from UK Numbers](https://github.com/user-attachments/assets/e9fb02a0-b5e2-4a69-8481-fe0d08049a24)](https://freereceivesms.top/)
 
 ## What is Free SMS from UK Numbers?
 
