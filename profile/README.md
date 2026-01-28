@@ -52,4 +52,4 @@ Free SMS UK is ideal for various online tasks, such as:
 
 ## Start Receiving Free SMS from UK Numbers Today
 
-Start using our **Free SMS UK** service today to receive SMS messages online instantly, securely, and for free. Enjoy complete privacy with no need for registration, SIM cards, or hidden fees. Visit [dub.sh/free-sms-uk](https://dub.sh/free-sms-uk) and get started now!
+Start using our **Free SMS UK** service today to receive SMS messages online instantly, securely, and for free. Enjoy complete privacy with no need for registration, SIM cards, or hidden fees. Visit [https://freereceivesms.top/](https://freereceivesms.top/) and get started now!
