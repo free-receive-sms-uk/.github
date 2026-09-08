@@ -1,12 +1,12 @@
 ## Receive Free SMS from UK Numbers – Secure & Anonymous Service
 
-**[Get Free SMS from UK Numbers](https://freereceivesms.top/)** through our service at . It's fast, secure, and completely anonymous. Protect your privacy, avoid spam, and verify accounts without revealing your personal phone number.
+**[Get Free SMS from UK Numbers](https://www.otpdrop.com/)** through our service at . It's fast, secure, and completely anonymous. Protect your privacy, avoid spam, and verify accounts without revealing your personal phone number.
 
-[![Get Free SMS from UK Numbers](https://github.com/user-attachments/assets/e9fb02a0-b5e2-4a69-8481-fe0d08049a24)](https://freereceivesms.top/)
+[![Get Free SMS from UK Numbers](https://github.com/user-attachments/assets/90f89633-b4d4-40d0-b20e-58f1c110f50c)](https://www.otpdrop.com/)
 
-## What is Free SMS from UK Numbers?
+## [What is Free SMS from UK Numbers?](https://www.otpdrop.com/)
 
-With **Free SMS UK**, you can receive SMS messages directly to your browser from a UK-based number—no SIM card, no apps, and no registration required. Whether you need to register for an online service, verify an account, or keep your personal information private, our online SMS reception service is fast, reliable, and free.
+With [**Free SMS UK**](https://www.otpdrop.com/), you can receive SMS messages directly to your browser from a UK-based number—no SIM card, no apps, and no registration required. Whether you need to register for an online service, verify an account, or keep your personal information private, our online SMS reception service is fast, reliable, and free.
 
 ## Key Features of Our Free SMS Service from UK Numbers
 
